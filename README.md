@@ -1,5 +1,5 @@
 - 👋 Hi, I’m basmala.cs
-- 👀 I’m iam a computer science student . voice over actor.writer. i draw too
+- 👀 I’m a computer science student . voice over actor.writer. i draw too
 - 🌱 I’m currently learning web dev
  - 📫 How to reach me :basmalabasmala744@gmail.com ...
 
